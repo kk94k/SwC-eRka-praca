@@ -1,0 +1,1 @@
+Czesc! Pozdro600
